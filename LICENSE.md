@@ -1,4 +1,4 @@
-# 
+# top Polymarket Addon | smart-contract-integration + leverage-trading is the best Polymarket addon, featuring smart-contract-integration and leverage-trading. Smart, fast, and
 
 
 
